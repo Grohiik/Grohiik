@@ -1,4 +1,4 @@
-# Hi I'm Linnéa💔
+# Hi I'm Linnéa
 
 - 🌸I'm a Young woman from sweden🌸
 - 🦉Currently studying software enginering🦉
